@@ -1,5 +1,5 @@
 # 💫 About Me:
-Olá sou designer gráfico e estou no inicio da minha carreira. <br>
+Olá sou Designer e Ilustradora estou no inicio da minha carreira. <br>
 
 
 ## 🌐 Socials:
